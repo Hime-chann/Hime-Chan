@@ -31,7 +31,18 @@ I also enjoy writing poems, free verse, rhyme and haiku.
 
 >>Chinese zodiac sign: Sheep/Goat 
 
+>>Favorite number: 13
+
+>>Nickname: Prince, Ces, Manuel, Hime
+>>From CICT department
+
+
+The strongest weapon in two million years of human history: communication technology
+
 I am a 1st Year college student taking BS Computer Science hoping to survive the four academic years
+
+CICT department
+
 
 
 
@@ -44,4 +55,4 @@ I am a 1st Year college student taking BS Computer Science hoping to survive the
 <h5 align="right"> Mediocre</h5>
 
 #
-**"I am a technology kid, who's excited by mecha, space and Doraemon! I will save all of humanity, without exception, with the power of science!" Senku Ishigami.**
+
