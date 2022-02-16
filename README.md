@@ -37,7 +37,7 @@ I also enjoy writing poems, free verse, rhyme and haiku.
 >>From CICT department
 
 
-The strongest weapon in two million years of human history: communication technology
+**The strongest weapon in two million years of human history: communication technology**
 
 I am a 1st Year college student taking BS Computer Science hoping to survive the four academic years
 
