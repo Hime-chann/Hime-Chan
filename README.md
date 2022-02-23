@@ -34,7 +34,6 @@ I also enjoy writing poems, free verse, rhyme and haiku.
 >>Favorite number: 13
 
 >>Nickname: Prince, Ces, Manuel, Hime
->>From CICT department
 
 
 **The strongest weapon in two million years of human history: communication technology**
